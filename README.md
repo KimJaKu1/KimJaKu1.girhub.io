@@ -1,1 +1,1 @@
-# KimJaKu1.girhub.io
+# KimJaKu1.github.io
